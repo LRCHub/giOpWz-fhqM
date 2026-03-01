@@ -1,0 +1,44 @@
+# NIDJI – Hapus Aku
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Kutuliskan kesedihan
+Semua tak bisa kau ungkapkan
+Dan kita 'kan bicara
+Dengar hatiku
+
+Buang semua puisi
+Antara kita berdua
+Kau bunuh dia sesuatu
+Yang kusebut itu cinta
+
+Yakinkan aku Tuhan
+Dia bukan milikku
+Biarkan waktu-waktu
+Hapus aku
+
+Sadarkan aku Tuhan
+Dia bukan milikku
+Biarkan waktu-waktu
+Hapus aku
+
+Buang semua puisi
+Antara kita berdua
+Kau bunuh dia sesuatu
+Yang kusebut itu cinta
+
+Yakinkan aku Tuhan
+Dia bukan milikku
+Biarkan waktu-waktu
+Hapus aku
+
+Sadarkan aku Tuhan
+Dia bukan milikku
+Biarkan waktu-waktu
+Hapus aku
+
+Ooh-ooh
+Biarkan waktu-waktu
+Hapus aku
+```
